@@ -5,7 +5,7 @@
 </h1>
 
 
-<h2 align="center">⚡ İSTATİSTİK ⚡</h2>
+<h2 align="center">⚡ İSTATİSTİK 🔥</h2>
 <br>
 <p align=center>
   <div align=center>
